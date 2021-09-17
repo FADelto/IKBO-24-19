@@ -1,2 +1,2 @@
 # IKBO-24-19
-For practice
+Ссылка на игру
